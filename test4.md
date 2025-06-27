@@ -4,6 +4,4 @@ lol pota
 
 dd
 
-lol
-
-pota
+tangina
